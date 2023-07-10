@@ -23,3 +23,13 @@ If bfr gt say wn meet jiu go jerrr
 Abo I juede cn go sneak see see 放心点
 
 She bfr got say wn the file before 11am butbut i dunno she want meet me ma... Actually is because huiwen is hungry and want to makan so dunwan meet her...
+
+Aww I oso hungry
+Hahahaha oooo thn
+Jiu dw meet wahahaha
+No la jkjk ask her laa
+Dk neh I have no idea hahaha
+They gt any idea ma
+
+
+
