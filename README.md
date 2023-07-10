@@ -31,5 +31,8 @@ No la jkjk ask her laa
 Dk neh I have no idea hahaha
 They gt any idea ma
 
+hahahah just go 8 floor see she want meet me ma
+if meet le then tell her i send dy and i want go makan
+
 
 
