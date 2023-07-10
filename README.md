@@ -17,3 +17,8 @@ Yes, i need some human help to do it
 makan pa i also dunno
 dunno ltr need to meet my supervisor ma
 She say send the file to her but i dunno she want to meet me ma
+
+Oooo she no reply u after that shima
+If bfr gt say wn meet jiu go jerrr
+Abo I juede cn go sneak see see 放心点
+
