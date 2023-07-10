@@ -13,3 +13,7 @@ Hahahaha do you need help to conquer earth ma
 Yes, i need some human help to do it
 
 😳😳
+
+makan pa i also dunno
+dunno ltr need to meet my supervisor ma
+She say send the file to her but i dunno she want to meet me ma
